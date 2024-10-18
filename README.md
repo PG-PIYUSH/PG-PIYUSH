@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning dsa and backend
 - 📫 How to reach me on gmail at piyushgupta25616@gmail.com
 - my insta handle is https://www.instagram.com/piyushgupta2246/
-- my linkdin profile is on https://www.linkedin.com/home?originalSubdomain=in
+- my linkdin profile is on https://www.linkedin.com/in/piyush-gupta-375a5025b
 
 
 
